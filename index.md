@@ -52,3 +52,7 @@ I also have family in the Bay who I stay in regular contact with--both my nuclea
 I have an idea of what I want from a romantic relationship, but there is no substitute for reality.  If this profile--most of it, some of it, all of it--strikes your fancy, reach out to me on Facebook or through a mutual friend.
 
 It will probably be awkward, but that's OK.  Some strategic tolerance for awkwardness is probably a good trait to cultivate anyways--I know I feel a bit awkward writing about myself, and yet here I am, still thinking it's a good thing.
+
+## Credits
+
+This profile was inspired by [catherio's](https://paper.dropbox.com/doc/catherios-dating-profile-Wt2wu19F4z1hUEKk8QXK4) and [Jillian's](https://www.dropbox.com/scl/fi/m2aw47nnzqampjmz71rz4/Jillian-s-Dating-Profile.paper?dl=0&rlkey=z8a933t6nf4c2vvvr7rcc4oqi) profiles.  Template [here](https://paper.dropbox.com/doc/template-dating-profile-1Kb60Xjn8QGKLQ38NQBZI).
