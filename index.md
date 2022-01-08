@@ -8,7 +8,7 @@ My name is Tim Hausler and maybe we should go out!
 
 **Age**: 28    
 **Gender**: Male.   
-**Location**: Bay Area, currently staying in the South Bay but have lived in SF/Oakland/Berkeley for the past ten years    
+**Location**: Bay Area, currently in Berkeley   
 **Monogamy?**: Yep!  I prefer the focus of one romantic relationship over many relationships.  Open to casual dating in the short/medium term.    
 **Wants kids?**: Probably yes!  I've been stable in this preference for 5+ years now.  I like the idea of watching someone grow up, getting to learn their interests from them, and eventually having them be partners in our family.  It's the kind of long-term project I think is worthwhile.    
 **Wants to be stay-at-home-parent?**: Probably a bit.  I could see myself working part time or temporarily leaving the workforce. I value the ability to spend time with friends and family, as well as the intellectual stimulation of doing work I find meaningful. My ideal situation over my lifetime includes some serving the world through work and some serving the world through being Tim just living with and supporting his people.    
