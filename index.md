@@ -6,7 +6,7 @@ My name is Tim Hausler and maybe we should go out!
 <img src="https://lh3.googleusercontent.com/pw/ACtC-3c6_gJiSQ8uyxe-mdWi8a8oBTDY_bTBfmvE5HT86TxVTSraGbkhZ2noRkjW0VrcYBf7ppRLgmjsPW6WWlszRODfVn4NvWSbUOT1Kzm0T8BmkfHUjhPZxoy4JAz0bgDEkPukfSoNr29CNyjik3tVZsh5=w906-h1208-no?authuser=0" height=220> <img src="https://lh3.googleusercontent.com/uPgNcclmgALUEkBo5T6w5xb67gzij5NfjAW8FRH4UUWPHvi1lSrwhGMS0aK5nr0W9VEyLYdgwR3C972wETljWc9BCYMnrTfuz9siUffc9nsZzpxMp8LA_ZmtXlxeLteC4JkCZyG4Mg=w2400" height=220px> <img src="https://lh3.googleusercontent.com/_Bj3rWxyb2t9yCPcv7Q9FOa9xlhXlZCMDP0p3wVNd6yUPf4SAUPs-eBTDDzvxopYynthF4VtVIn2OHKoSgom7NjC0AU2gUOS-gFD6N6LOjjI0OsHeg6_rPuoc52ov3ASsKHx66DRBQ=w2400" height=220> <img src="https://lh3.googleusercontent.com/bPgE0eNi-Xfku_galeN5SSZx0dC599KXUNPvhOWmIlv1BR6XR5OZABbXlZY9xGYM-TF9zSd6IUzdJqrXeucPz8V-Zj6ORtTLfWuyVYyv23cMegRpyUMqMRZtYiryk6CAI83GVTIbSg=w2400" height=220px>
 
 
-**Age**: 28    
+**Age**: 29    
 **Gender**: Male.   
 **Location**: Bay Area, currently in Berkeley   
 **Monogamy?**: Yep!  I prefer the focus of one romantic relationship over many relationships.  Open to casual dating in the short/medium term.    
@@ -50,6 +50,8 @@ I also have family in the Bay who I stay in regular contact with--both my nuclea
 ## Call to action
 
 I have an idea of what I want from a romantic relationship, but there is no substitute for reality.  If this profile--most of it, some of it, all of it--strikes your fancy, reach out to me on Facebook or through a mutual friend.
+
+I currently live in the Bay Area, but am open to the possibility of being elsewhere in the medium- to long-term.  It's easiest to convince me to say yes to places that I have pre-existing relationships with, like Seattle, Sacramento, Portland, Alaska, and Minnesota, which I visit semi-frequently.  It probably won't work if you are on the East Coast.
 
 It will probably be awkward, but that's OK.  Some strategic tolerance for awkwardness is probably a good trait to cultivate anyways--I know I feel a bit awkward writing about myself, and yet here I am, still thinking it's a good thing.
 
