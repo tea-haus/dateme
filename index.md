@@ -50,11 +50,12 @@ I also have family in the Bay who I stay in regular contact with--both my nuclea
 
 ## Call to action
 
-I have an idea of what I want from a romantic relationship, but there is no substitute for reality.  If this profile--most of it, some of it, all of it--strikes your fancy, reach out to me on Facebook or through a mutual friend.
+I have an idea of what I want from a romantic relationship, but there is no substitute for reality.  If this profile--most of it, some of it, all of it--strikes your fancy, reach out to me on email (thausler786@gmail.com), Facebook, or through a mutual friend.
 
-I currently live in the Bay Area, but am open to the possibility of being elsewhere in the medium- to long-term.  It's easiest to convince me to say yes to places that I have pre-existing relationships with, like Seattle, Sacramento, Portland, Alaska, and Minnesota, which I visit semi-frequently.  It probably won't work if you are on the East Coast.
+I currently live in the Bay Area, but am open to the possibility of being elsewhere in the medium- to long-term.  It's easiest to convince me to say yes to places that I have pre-existing relationships with, like Seattle, Sacramento, Portland, Alaska, and Minnesota, which I visit semi-frequently.  It probably won't work long-term if you are on the East Coast.
 
 It will probably be awkward, but that's OK.  Some strategic tolerance for awkwardness is probably a good trait to cultivate anyways--I know I feel a bit awkward writing about myself, and yet here I am, still thinking it's a good thing.
+
 
 ## Credits
 
