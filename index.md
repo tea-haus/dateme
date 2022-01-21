@@ -11,7 +11,7 @@ My name is Tim Hausler and maybe we should go out!
 **Location**: Bay Area, currently in Berkeley   
 **Monogamy?**: Yep!  I prefer the focus of one romantic relationship over many relationships.  Open to casual dating in the short/medium term.    
 **Wants kids?**: Probably yes!  I've been stable in this preference for 5+ years now.  I like the idea of watching someone grow up, getting to learn their interests from them, and eventually having them be partners in our family.  It's the kind of long-term project I think is worthwhile.    
-**Wants to be stay-at-home-parent?**: Probably a bit.  I could see myself working part time or temporarily leaving the workforce. I value the ability to spend time with friends and family, as well as the intellectual stimulation of doing work I find meaningful. My ideal situation over my lifetime includes some serving the world through work and some serving the world through being Tim just living with and supporting his people.    
+**Wants to be stay-at-home-parent?**: Flexible.  I could see myself working part time or temporarily leaving the workforce. I value the ability to spend time with friends and family, as well as the intellectual stimulation of doing work I find meaningful. My ideal situation over my lifetime includes some serving the world through work and some serving the world through being Tim just living with and supporting his people.    
 
 ## Things that matter to me in a partner
 
@@ -35,7 +35,8 @@ My friends say...
 > Doesn't mind getting a little dirty  
 > Curious about the world around him  
 
-<img src="https://lh3.googleusercontent.com/UZ0Pr3Bnvgc1J8TxoizRrI--eYd9N2jj-0v_XKj88o1S2mVedj231NcxtDdJmGixuDGKxJAIE2a27y_Nkc5SuCKhC5PYVwl3ofWAlr7bUvm0nR8oOlpcB1ilAMvtzv-6GmW357JsZw=w2400" height=250px> <img src="https://lh3.googleusercontent.com/-cATlZ5JKdWWVYTYC-90tSTRLviF4l48xAzWEl88w6ZE6_hfXKcmol0d_UohOcrgDXlUf8sQ9cN1BIVeKgdXaG13O_IYfKjOo1YFYZXSpN5jfUSDMnYwFnGjnDaACXvY2mBdktCYKA=w2400" height=250px> <img src="https://lh3.googleusercontent.com/8kJdqe2cFeVnJRJVHiEb2ZtK-Pj4fkLDVc3brZxmFt_juujk7VaR3eWS6VTF0fZzyI2kQQ9JSIUkY50tS15W6y-6L8ejKfkkGTqAABhSvqjYE7m29Z3FJjMvzuld2qXWesKZHPQ0Pw=w2400" height=250px>
+
+<img src="https://lh3.googleusercontent.com/WFQn5CsN3YlS-ab6-uZ4p6wpIvIbYyu9MoZXrp-ZsSQeP16o1YmkgF2qlG8HKG9Gb7VepVK2lSLDLdDG_R_gpUCoJ4JTWKEVjN5B9jlZchELyiw5Izg-c9KPQO7wfS_lw1zIIYgFpQ=w2400" height=230px> <img src="https://lh3.googleusercontent.com/UZ0Pr3Bnvgc1J8TxoizRrI--eYd9N2jj-0v_XKj88o1S2mVedj231NcxtDdJmGixuDGKxJAIE2a27y_Nkc5SuCKhC5PYVwl3ofWAlr7bUvm0nR8oOlpcB1ilAMvtzv-6GmW357JsZw=w2400" height=230px> <img src="https://lh3.googleusercontent.com/-cATlZ5JKdWWVYTYC-90tSTRLviF4l48xAzWEl88w6ZE6_hfXKcmol0d_UohOcrgDXlUf8sQ9cN1BIVeKgdXaG13O_IYfKjOo1YFYZXSpN5jfUSDMnYwFnGjnDaACXvY2mBdktCYKA=w2400" height=230px> <img src="https://lh3.googleusercontent.com/8kJdqe2cFeVnJRJVHiEb2ZtK-Pj4fkLDVc3brZxmFt_juujk7VaR3eWS6VTF0fZzyI2kQQ9JSIUkY50tS15W6y-6L8ejKfkkGTqAABhSvqjYE7m29Z3FJjMvzuld2qXWesKZHPQ0Pw=w2400" height=230px>
 
 I love being outdoors, particularly backpacking.  I live for the joy of the fellowship of the trail--traveling as a crew, relying on each other, with nothing else on the agenda except exploring the world and each others' company.  I also seek out different experiences that force me to try and understand our wild hinterlands from different angles, such as fishing, skiing, or canoeing.  I worked Alaska as a trek leader this past summer 2021.  It's important to me that my partner at a very bare minimum enjoys camping, and preferrably has other outdoor pursuits as well. [Here are some of my trips](https://caltopo.com/m/HF4G).
 
