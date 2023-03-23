@@ -73,8 +73,6 @@ I read a lot of history books--in the last decade I've been reading a lot about 
 
 Some books that I've loved include "Zen and the Art of Motorcycle Maintenance", the Odyssey, "Marriage, A History", "Pride and Prejudice", and other books you can find on my [Goodreads](https://www.goodreads.com/review/list/92182561?ref=nav_mybooks).
 
-Ray Troll, Mark Hausler, Lindsay Hansen
-
 ### Social
 
 I've lived in the Bay Area my whole life and have a cherished network of friends spread around the West Coast, some of whom I have known for decades.  I also enjoy the social serendipity of more open social spaces, like dancing (specifically into contra lately!). 
